@@ -1,6 +1,6 @@
 ## Olá, pode me chamar de Kayky
 
-Seja bem vindo ao meu perfil, desde já agradeço a atenção e espero que você tenha absorvido algo ou encontrado algo do meu perfil que possa ajudar
+Seja bem vindo ao meu perfil, desde já agradeço a atenção e espero que você tenha absorvido algo ou encontrado algo do meu perfil que possa ajudar com sua criatividade ou que te incentive de profissionalmente de alguma maneira
 
 
 ##
